@@ -1,0 +1,5 @@
+- 👋 Hi, I’m James Gospel
+- 👀 I’m interested in getting a job.
+- 🌱 I’m currently learning cybersecurity.
+- 💞️ I’m looking to collaborate with a company that pays well.
+- 📫 How to reach me, send me a mail on gospeljames15@gmail.com.
